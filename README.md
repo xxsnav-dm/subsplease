@@ -3,7 +3,7 @@
 SubsPlease 是一个专注于提供高质量字幕的动漫下载网站。其目标是在新番播出后第一时间提供带有英文字幕的动漫资源。该网站由一群热爱动漫的字幕组成员运营，他们致力于填补 HorribleSubs 关闭后留下的空白。SubsPlease 的界面简洁，资源分类清晰，便于用户查找和下载。此外，该网站还提供批量下载服务，方便用户在季度末一次性下载整部动漫。
 
 <p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/15919.html" target="_blank" ><strong>SubsPlease最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanziyuan" target="_blank" ><strong>动漫资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://dongmandaohang.sodanav.com" target="_blank" ><strong>动漫网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
